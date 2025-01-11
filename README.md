@@ -1,4 +1,4 @@
-# CSLightHK
+# Commercial and sports lighting as major drivers of light pollution in Hong Kong
 
 Commercial and sports lighting as major drivers of light pollution in Hong Kong
 
